@@ -1,2 +1,2 @@
-## Team LEAD
+## TEAM LEAD
 ## BHERMAL ADARSH JAIN

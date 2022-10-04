@@ -1,2 +1,2 @@
-## Team Member-2
+## TEAM MEMBER-2
 ## JAY BALDIYA JAIN
